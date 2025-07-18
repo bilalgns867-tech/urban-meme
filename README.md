@@ -1,2 +1,2 @@
-<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-6530975480139748" crossorigin="anonymous"></script> bilalgns
+<script async <script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-6530975480139748" crossorigin="anonymous"></script>="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-6530975480139748" crossorigin="anonymous"></script> bilalgns
 Motive ,NET, Pozitif 
